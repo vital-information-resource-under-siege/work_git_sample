@@ -1,1 +1,1 @@
-README pakka variya da body soda
+README pakkuriya da body soda
